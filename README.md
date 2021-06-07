@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... anything
 - 📫 How to reach me: ... email
 - 😄 Pronouns: ... HE/HIM 
-- ⚡ Fun fact: ... cheetah, leopard, jaguar, and panther, i thought all this names are for same animal
+- ⚡ Fun fact: ... cheetah, leopard. i thought all this names are for same animal
 -->
